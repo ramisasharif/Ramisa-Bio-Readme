@@ -6,3 +6,5 @@
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love dinosaurs!
 
+- I hope to meet other coders to collaborate on awesome projects in the future!
+
